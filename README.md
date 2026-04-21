@@ -21,4 +21,4 @@ Agora estou focada em migrar para a área de tecnologia, estudando desenvolvimen
 ---
 
 ## 📫 Contato
-- LinkedIn: (coloca seu link aqui)
+- LinkedIn: (https://www.linkedin.com/in/alane-de-almada-craveiro-martins-b6b93a292/))
